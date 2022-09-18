@@ -1,3 +1,3 @@
-https://romanri858.github.io/rsschool-cv/cv
+https://romanri858.github.io/rsschool-cv/
 
 
